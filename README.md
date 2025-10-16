@@ -1,4 +1,4 @@
-## Published article : Link
+## Published article : Link((https://young-drifter-240.notion.site/The-RealFi-Revolution-Building-the-Next-Generation-of-Accessible-and-Sovereign-Financial-Tools-28e23a21ae1280bb9384dac1043452c0))
 
 # The RealFi Revolution: Building the Next Generation of Accessible and Sovereign Financial Tools
 
